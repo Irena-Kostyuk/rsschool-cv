@@ -1,5 +1,4 @@
 # Iryna Kostyuk
-kosirena#2706
 
 ## Contacts:
 * __Location:__ Lviv, Ukraine
